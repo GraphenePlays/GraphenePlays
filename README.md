@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GraphenePlays
 - 👀 I’m interested in ... ```Playing Warzone```
 - 🌱 I’m currently learning ... ```Playing games```
-- 💞️ I’m looking to collaborate on ... with ```warzone players```
+- 💞️ I’m looking to collaborate on ... ```with warzone players```
 - 📫 How to reach me ... Discord- ```GraphenePlays#6694```
 
 <!---
